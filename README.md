@@ -12,4 +12,4 @@ Soy capaz de hablar con fluidez tres idiomas: Inglés, Gallego y Francés . Tien
 
 Toda mi familia dice que me parezco física y personalmente a mi abuela paterna👵, me gusta pensar que hay una parte de ella en mí, es el miembro familiar que más echo de menos. 💗
 
-⚡ Si has llegado hasta aquí, muchas gracias por pararte a leer algunos datos sobre mí⚡
+⚡ *Si has llegado hasta aquí, muchas gracias por pararte a leer algo de información sobre mí*⚡
