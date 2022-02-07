@@ -1,4 +1,4 @@
-### Algunos datos sobre mí 😄👋
+## Algunos datos sobre mí 😄👋
 Gracias por entrar a visitarme✌️
 Mi nombre es Paloma Castro, soy gallega de nacimiento, pero procedo de una familia cubana que previamente se exilió de Galicia 🌿, por lo que podríamos decir que es un conflicto de procedencias. A pesar del origen de mi familia, siempre me he sentido 100% arraigada a estas tierras y no me imagino mi vida fuera de ellas🍃
 
